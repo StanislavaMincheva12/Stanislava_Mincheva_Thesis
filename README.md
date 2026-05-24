@@ -1,1 +1,0 @@
-# Stanislava_Mincheva_Thesis
